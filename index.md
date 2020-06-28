@@ -1,1 +1,2 @@
 # Pippi Langstrumpf
+In Schweden waren sie schon immer fortschrittlicher als in anderen Ländern. So ist es kein Wunder, dass Pippi als Frau zahlreiche Abenteuer besteht und durch Intelligenz und Witz und manchmal auch eine Portion Frechheit am Ende die Lacher auf ihrer Seite hat.
