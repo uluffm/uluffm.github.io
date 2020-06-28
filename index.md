@@ -14,3 +14,5 @@ Wie Pippi Langstrumpf regelmäßig betonte:
 
 > Life wasn't meant to be easy
 > and it nice to keep on laughing
+
+<img src=https://cdn.pixabay.com/photo/2015/08/24/17/47/villa-kunterbunt-905347_960_720.jpg>
