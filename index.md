@@ -9,3 +9,8 @@ In Schweden waren sie schon immer fortschrittlicher als in anderen Ländern. So 
 * fröhlich
 * witzig
 * empathisch
+
+Wie Pippi Langstrumpf regelmäßig betonte:
+
+> Life wasn't meant to be easy
+> and it nice to keep on laughing
